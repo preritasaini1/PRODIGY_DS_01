@@ -18,4 +18,4 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 
 For any inquiries or collaborations, feel free to reach out:
 
-- LinkedIn: [Prerita Saini](linkedin.com/in/prerita-saini-b67393284)
+- LinkedIn: [Prerita Saini](https://www.linkedin.com/in/prerita-saini-b67393284/)
